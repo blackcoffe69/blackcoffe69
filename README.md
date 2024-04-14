@@ -6,6 +6,3 @@
 - Connect with me on [Linkendin](https://www.linkedin.com/in/abiodun-morakinyo-3ab46b27a/)
 
 - [linktree](https://linktr.ee/abiodunmorakinyo)
-blackcoffe69/blackcoffe69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
